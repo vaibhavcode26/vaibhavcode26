@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **vaibhavdixit2608@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_GQMBNJV2D8x8dwoTc-3HN_HVjZM2wzw/view?usp=sharing](https://drive.google.com/file/d/1_GQMBNJV2D8x8dwoTc-3HN_HVjZM2wzw/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1_GQMBNJV2D8x8dwoTc-3HN_HVjZM2wzw/view?usp=sharing]([https://drive.google.com/file/d/1_GQMBNJV2D8x8dwoTc-3HN_HVjZM2wzw/view?usp=sharing](https://drive.google.com/file/d/1oxNeA-cNo-uMEuAzPYIIaT7Z27ITIlLn/view?usp=sharing))
 
 - ⚡ Fun fact **I write Songs**
 
